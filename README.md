@@ -1,4 +1,4 @@
-# Para mi culoncita bella y narigona
+# Para mi culoncita 🍑 bella y narigona 👃
 
 ![fasd](https://media.tenor.com/TVUDS_QOjVYAAAAC/happy-puppy.gif)
 - pagina de datasets: https://www.kaggle.com/
